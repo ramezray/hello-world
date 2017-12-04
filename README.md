@@ -1,2 +1,3 @@
 # hello-world
 My first project in github
+My name is Ramez but I like to go by Ray. I have computer information system deegre, but I love to be CODER. I have no idea what to do or where to go to score my goal, but I WILL NEVER GIVE UP.....
